@@ -1,1 +1,1 @@
-# Team-Dinamita--Lab1
+# Team-Dinamita-Lab1
